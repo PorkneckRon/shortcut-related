@@ -1,0 +1,1 @@
+Apple自动化模块Shortcut相关图标
