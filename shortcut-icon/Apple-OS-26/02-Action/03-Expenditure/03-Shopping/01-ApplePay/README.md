@@ -1,0 +1,1 @@
+Apple Pay模块Shortcut相关图标
