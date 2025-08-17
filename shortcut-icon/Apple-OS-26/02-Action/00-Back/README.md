@@ -1,0 +1,1 @@
+返回Action Auto模块Shortcut相关图标
